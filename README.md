@@ -1,3 +1,3 @@
 # Viaggio a Londra
 
-Check-list per il mio viaggio a Londra 
+Check-list del mio viaggio a Londra 
